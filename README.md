@@ -8,3 +8,4 @@
 
 # Introduction
 Hi. This is hyunji.Kim.
+My MBTI is ENTJ.
